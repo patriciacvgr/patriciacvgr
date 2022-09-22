@@ -1,4 +1,4 @@
-### Hey there, I'm Patricia!
+### Hey there, I'm Patricia :)
 I'm an aspiring game developer, who's interested in coding and 3D modeling!
 ##
 
